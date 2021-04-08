@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nikki01410
+- 👋 Hi, I’m Nee Kee
 - 👀 I’m interested in drawing
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on anything in the future
